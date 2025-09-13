@@ -6,9 +6,7 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I started coding at 8!
   
->Go To My Website https://how-is-this-a.great-site.net
->Go To Settings
->Talk To Me In The Suggestion Box!
+>Yeah im dead now soo....
 <!---
 The-Double-G/The-Double-G is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
